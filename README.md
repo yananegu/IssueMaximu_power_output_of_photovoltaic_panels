@@ -1,0 +1,1 @@
+# IssueMaximu_power_output_of_photovoltaic_panels
